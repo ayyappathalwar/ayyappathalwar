@@ -9,7 +9,7 @@ Here are some ideas to get you started:
 - 👯 I’m looking to collaborate on ... Machine Learning and Power BI
 - 🤔 I’m looking for help with ...
 - 💬 Ask me about ...Anything
-- 📫 How to reach me: ...thalawarayyappa@gmail.com  
+- 📫 How to reach me: ...ayyappathalwar@gmail.com  
 - 😄 Pronouns: ...Hw/Him
 - ⚡ Fun fact: ...Started New Path
 -->

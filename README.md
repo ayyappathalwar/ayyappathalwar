@@ -10,5 +10,5 @@ Here are some ideas to get you started:
 - 💬 Ask me about ...Anything
 - 📫 How to reach me: ...ayyappathalwar@gmail.com  
 - 😄 Pronouns: ...Him
-- ⚡ Fun fact: ...Started New Path
+- ⚡ Fun fact: ...Started New Path and working on myself to become better everday, finding my way....
 -->

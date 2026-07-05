@@ -9,6 +9,6 @@ Here are some ideas to get you started:
 - 👯 I’m looking to collaborate on ... Machine Learning and Power BI
 - 💬 Ask me about ...Anything
 - 📫 How to reach me: ...ayyappathalwar@gmail.com  
-- 😄 Pronouns: ...Hw/Him
+- 😄 Pronouns: ...Him
 - ⚡ Fun fact: ...Started New Path
 -->
